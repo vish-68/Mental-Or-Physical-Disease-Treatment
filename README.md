@@ -1,1 +1,0 @@
-# Mental-Or-Physical-Disease-Treatment
